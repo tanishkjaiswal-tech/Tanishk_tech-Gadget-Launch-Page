@@ -10,7 +10,7 @@ Water Resistant up to 100m
 Wireless Charging
 
 ---
-
+https://tanishkjaiswal-tech.github.io/Tanishk_tech-Gadget-Launch-Page/
 
 
 ---
